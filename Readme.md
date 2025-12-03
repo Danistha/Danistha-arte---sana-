@@ -8,5 +8,5 @@ Página web oficial de nuestro emprendimiento de crochet y tejidos naturales.
 💚 Tejidos que conectan corazón y hogar
 
 ## Contacto
-WhatsApp: [Tu número real]
-Email: [Tu email real]
+WhatsApp: 098234364
+Email: karuna.uy@gmail.com
